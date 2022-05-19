@@ -6,4 +6,7 @@ india is democracy
 america is democracy
 
 pakistan is not demmocracy
- i am one who is the one
+
+ i am one who is the one.
+
+ 
