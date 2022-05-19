@@ -4,3 +4,5 @@ i am from guna
 chapter 3
 india is democracy  
 america is democracy
+
+pakistan is not demmocracy
